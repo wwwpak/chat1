@@ -1,2 +1,2 @@
 # chat1
-https://wwwpak.github.io/chat1/
+https://wwwpak.github.io/mrsbsboy/
